@@ -1,0 +1,2 @@
+# WirWollenGeld
+Scherz Webseite
